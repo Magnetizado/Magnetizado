@@ -1,4 +1,4 @@
-- Hey! Welcome to my profile.👋
+Hey! Welcome to my profile.👋
   
   
 - My name is Lucas, but call me Magnetizado!
