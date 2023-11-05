@@ -5,6 +5,6 @@ Hey! Welcome to my profile. 👋
 - I'm **not that active**, so you probably will **never** see any relevant project in here.
 
 If you want to contact me, just leave a message in my Discord!
-- Discord: **thatlukinhasguy**
+- Discord: **thatlukinhasguy.**
 
 We do a little trolling :trollface:
